@@ -1,3 +1,3 @@
-# wapzap
+# woal SAT
 
-supositorio pal wa 👍
+nunca supe como se escribia
